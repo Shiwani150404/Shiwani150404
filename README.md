@@ -1,4 +1,4 @@
-# Hi 👋 I'm Shiwani Dodke
+# Hi, I'm Shiwani Dodke
 
 ### Computer Science & Technology Graduate | Technology Enthusiast
 
